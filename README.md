@@ -1,1 +1,1 @@
-# achivkalar
+# achivkalar olamiz
