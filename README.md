@@ -1,1 +1,1 @@
-# achivkalar olamiz
+# achivkalar olamiz ura
